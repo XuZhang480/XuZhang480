@@ -2,4 +2,5 @@
 
 ## Hi there 👋
 
-Have a good day!
+
+I am a man of focus, commitment and sheer will.
